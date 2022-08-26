@@ -1,1 +1,1 @@
-Read me file has been upated
+Read me file has been updated
